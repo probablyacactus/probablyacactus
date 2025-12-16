@@ -63,12 +63,3 @@
 
 
 
-<sup>EDITOR NOTE: this person is a dumbass<sup>  
-<img width="582" height="242" alt="image" src="https://github.com/user-attachments/assets/95fad255-4f16-4d58-9cfd-93afd1c5ca51" />  
-
-*few seconds before* 
-
-![Screen recording 2025-12-16 00 15 31](https://github.com/user-attachments/assets/e4470778-111b-43b7-92af-bc12aa28d9b7)
-
-
-
