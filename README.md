@@ -59,4 +59,7 @@
 
 
 
-<sup>EDITOR NOTE: this person is a dumbass<sup>
+<sup>EDITOR NOTE: this person is a dumbass<sup> 
+
+<img width="510" height="400" alt="image" src="https://github.com/user-attachments/assets/a8536487-1730-4c3e-91f8-7df40bd0b932" />
+
