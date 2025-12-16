@@ -1,5 +1,9 @@
-## ❛❛ I am . . .*JUSTICE* ❜❜  
-<img width="1100" height="400" alt="image" src="https://github.com/user-attachments/assets/ae03224a-1f35-4120-b30b-10b550164942" />
+## ❛❛ I am . . .*JUSTICE* ❜❜
+
+
+<img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/a2079aef-cdad-4473-bb25-1baddf673ebe" />
+
+
 
 
 
