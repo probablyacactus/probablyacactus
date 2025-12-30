@@ -62,8 +62,13 @@
 ![362f71e75ce3893c4bace15c957661f0](https://github.com/user-attachments/assets/d7ae23a2-fa73-4511-a5fd-2e803b1e0409)
 
 
+<img width="229" height="247" alt="image" src="https://github.com/user-attachments/assets/b0a07b35-697d-466e-9603-84909c2b2f6d" />
+^ Lucas, the dumbass of the three cats (I love him like a baby though)
 
+<img width="346" height="351" alt="image" src="https://github.com/user-attachments/assets/7a1f49f3-3668-45ed-bdca-4bbbec6b6379" />
+^ Casper, the baby of my cars!!
 
-
+<img width="177" height="267" alt="image" src="https://github.com/user-attachments/assets/89fe91c8-7120-4f06-83e8-682215d8798d" />
+^ Kitty, the old grump lady of the babies. I love her sm
 
 
